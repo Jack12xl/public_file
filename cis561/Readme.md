@@ -2,7 +2,11 @@
 
 
 
-https://user-images.githubusercontent.com/27931931/161586677-f5f9c0d9-1f63-4d8e-8cf6-f4d0865abf65.mp4
+
+
+https://user-images.githubusercontent.com/27931931/161595024-d7009eed-e734-4730-a069-03d57390b474.mp4
+
+
 
 
 | Pow-Pow             | ![](https://github.com/Jack12xl/public_file/blob/master/cis561/Results/jinx.png)       |
